@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MouhamdouMBENGUE
-- 👀 I’m interested in basket-ball sport, and Economic's topis
+- 👀 I’m interested in basket-ball sport, and Economic's topics
 - 🌱 I’m currently learning project managememt and organisational trainnings
 - 💞️ I’m looking to collaborate on humanitarian and educational projects
 - 📫 my Email to reach me is currently mouhamadoufaliloumbengue@pitlook.fr
