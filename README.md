@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning project managememt and organisational trainnings
 - 💞️ I’m looking to collaborate on humanitarian and educational projects
 - 📫 my Email to reach me is currently mouhamadoufaliloumbengue@pitlook.fr
-- 😄 Pronouns: Mouhamadou Falilou MBENGUE
+- 😄 Pronouns: Mr.
 - ⚡ Fun fact: WRITING common litterature
 
 <!---
